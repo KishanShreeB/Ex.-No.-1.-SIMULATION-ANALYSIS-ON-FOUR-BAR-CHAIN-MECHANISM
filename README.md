@@ -55,8 +55,11 @@
 ## Output:
 
 
-### Name:
-### Register Number: 
+### Name:KISHAN SHREE B
+### Register Number: 212223100022
+![Uploading WhatsApp Image 2024-09-26 at 09.35.42_0dbb2836.jpg…]()
+![Uploading WhatsApp Image 2024-09-26 at 09.35.42_c5fd9ef2.jpg…]()
+
 
 ## RESULT:
  ### Thus the displacement & velocity analysis for the given four bar chain mechanism is simulated.
