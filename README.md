@@ -57,8 +57,15 @@
 
 ### Name:KISHAN SHREE B
 ### Register Number: 212223100022
-![Uploading WhatsApp Image 2024-09-26 at 09.35.42_0dbb2836.jpg…]()
-![Uploading WhatsApp Image 2024-09-26 at 09.35.42_c5fd9ef2.jpg…]()
+![image](https://github.com/user-attachments/assets/d195b740-3ec4-4bb0-9143-bb2ed97201e8)
+![image](https://github.com/user-attachments/assets/e0ae0f65-2a00-46a1-8702-24e974fc6ee2)
+![image](https://github.com/user-attachments/assets/6c4ad4f6-bf9d-4888-9ecc-0b31f3980a6f)
+![image](https://github.com/user-attachments/assets/6e63af07-8e28-4c31-afd5-f35d4acc3951)
+![image](https://github.com/user-attachments/assets/c8604b33-fda2-49eb-b129-a3fec1b0ab1a)
+
+
+
+
 
 
 ## RESULT:
